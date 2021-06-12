@@ -1,5 +1,5 @@
-# NXR
-$NXR Token
+# $NXR
+#NXR NEUROMASTER Token
 
 First Created on the $WAVES Platform 2018. [NXR] Valued Music Token.
 Inventors of NEUROMASTER Brand. 
