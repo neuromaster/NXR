@@ -9,14 +9,13 @@ Blockchain Copyright Protection. One Truth, Unstoppable
 
 
 
-LOGO https://github.com/NEUROMASTER/
+LOGO https://github.com/neuromaster/NXR/blob/main/neuromaster-token.png
 
 
 https://t.me/neuromastertokens
 
 
 https://twitter.com/NEUROMASTER9/
-
 
 
 https://discord.gg/u6pxM9fv
