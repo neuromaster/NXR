@@ -1,7 +1,7 @@
 # $NXR
 $NXR NEUROMASTER Token
 
-WARNING - May Cause Overwhelming Feelings of Great pleasure and Happiness.
+WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
 
 
 First Created on the $WAVES Platform 2018. [NXR] Valued Music Token.
