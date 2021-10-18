@@ -1,5 +1,5 @@
 # $NXR
-$NXR NEUROMASTER Token
+[NXR] NEUROMASTER Token
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
 
