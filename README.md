@@ -29,4 +29,4 @@ https://t.me/neuromastertokens
 https://twitter.com/NEUROMASTER9/
 
 
-https://discord.gg/u6pxM9fv
+https://coinsniper.net/coin/659
