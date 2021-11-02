@@ -1,5 +1,5 @@
 # $NXR
-[NXR] NEUROMASTER Token
+[NXR] NEUROMASTER Token - Exchange Asset, NFT, Contracts, Copyright Protection
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
 
