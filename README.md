@@ -1,5 +1,5 @@
-# $NXR
-[NXR] NEUROMASTER Token - Exchange Asset, NFT, Contracts, Copyright Protection
+# $NXR - Binance Smart Chain #BNB #BSC
+[NXR] NEUROMASTER Token - DEX Exchange Asset, NFT, Contracts, Copyright Protection
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
 
