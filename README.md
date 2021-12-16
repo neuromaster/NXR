@@ -1,4 +1,4 @@
-# $NXR - Binance Smart Chain #BNB #BSC
+# $NXR - Binance Smart Chain #BNB #BSC http://neuromaster.io
 [NXR] NEUROMASTER Token - DEX Exchange Asset, NFT, Contracts, Copyright Protection
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
