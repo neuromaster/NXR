@@ -1,8 +1,10 @@
-# $NXR - Binance Smart Chain #BNB #BSC http://neuromaster.io
-[NXR] NEUROMASTER Token - DEX Exchange Asset, NFT, Contracts, Copyright Protection
+# $NXR Digital Exchange Token, NFT's - $WAVES Blockchain / Binance Smart Chain #BNB #BSC http://neuromaster.io 
+
+#NFT Audio Visual #CRYPTOMUSIC
+
+NEUROMASTER Token - DEX Exchange Asset, NFT, Contracts, Copyright Protection
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
-
 
 First Created on the $WAVES Platform 2018. [NXR] Valued Music Token.
 Inventors of NEUROMASTER Brand. 
