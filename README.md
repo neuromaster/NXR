@@ -1,4 +1,4 @@
-# $NXR Digital Exchange Token, NFT's - SOLANA, BSC, $BCN $WAVES Blockchain CRYPTOMUSIC Development
+# $NXR Digital Exchange Crypto Currency Token, NFT's - SOLANA, BSC, $BCN $WAVES Blockchain CRYPTOMUSIC Development
 #NFT Audio Visual #CRYPTOMUSIC
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
