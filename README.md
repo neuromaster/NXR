@@ -1,8 +1,5 @@
-# $NXR Digital Exchange Token, NFT's - $WAVES Blockchain / Binance Smart Chain #BNB #BSC http://neuromaster.io 
-
+# $NXR Digital Exchange Token, NFT's - SOLANA, BSC, $BCN $WAVES Blockchain CRYPTOMUSIC Development
 #NFT Audio Visual #CRYPTOMUSIC
-
-NEUROMASTER Token - DEX Exchange Asset, NFT, Contracts, Copyright Protection
 
 WARNING - May Cause Overwhelming Feelings of Great Pleasure and Happiness.
 
